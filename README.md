@@ -1,2 +1,2 @@
 # Hyphonz-Bot-SOURCE-CODE
-The Source Code For Hyphonz Bot
+If you came here looking for source code. SIKEEEEEEEEEEEEEEEEE no source code for you lol. But invite [Hyphonz](https://bit.ly/3sNNxT5)
